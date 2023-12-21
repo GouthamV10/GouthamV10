@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Goutham V
 - 👀 I’m interested in anything related to Software and Technology
-- 🌱 I’m currently studying Engineering(B.tech-CSE) in Presidency University
